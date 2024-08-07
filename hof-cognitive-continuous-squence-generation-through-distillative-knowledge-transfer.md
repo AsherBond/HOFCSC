@@ -2,7 +2,7 @@
 
 ## Asher Bond
 
-### 5 min read · 16 hours ago
+### 5 min read 
 
 ---
 
